@@ -1,1 +1,1 @@
-# Diplom
+# AliveInside7.github.io
